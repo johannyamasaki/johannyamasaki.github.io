@@ -1,1 +1,0 @@
-# johannyamasaki.github.io
